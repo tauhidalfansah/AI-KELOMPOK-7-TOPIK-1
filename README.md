@@ -1,0 +1,2 @@
+# AI-KELOMPOK-7-TOPIK-1
+tugas AI
